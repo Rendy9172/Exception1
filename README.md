@@ -1,3 +1,3 @@
-Nama : Moh. Fizar Maulana Ikmal
-Nim: 22533690
+Nama : Rendy Prastyo
+Nim: 22533683
 kelas TI 3 E
